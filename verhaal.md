@@ -1,3 +1,3 @@
 #Verhaal
 
-Weet niet goed wat ik hier moet zetten
+deze wiki beschrijft de wielerwerld
